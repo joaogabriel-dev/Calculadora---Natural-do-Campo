@@ -22,4 +22,4 @@ Discord: Joao1#7250
 
 ## Contato - Natural do Campo 
 
-https://www.pamonhanaturaldocampo.com.br/contato.html
+https://www.pamonhanaturaldocampo.com.br/
